@@ -2,9 +2,9 @@
 - 👀 I’m interested in different stuff besides coding, like soccer and sewing. 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: You can email me at hanaoliviakim@gmail.com or 585128@pvpusd.net . I suggest emailing me at the first one instead of the second one. I check the my inbox in the first one more often. 
+- 📫 How to reach me: You can email me at hanaoliviakim@gmail.com or 585128@pvpusd.net 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I live right next to the beach.
+- ⚡ Fun fact: It only takes me about 15 minutes to get to the beach from my home and I am also in accelerated math!
 
 <!---
 HOKFIRE/HOKFIRE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
